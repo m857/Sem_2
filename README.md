@@ -1,2 +1,2 @@
 # Sem_2
-Tugas mayan
+Tugas mayan kan haha
